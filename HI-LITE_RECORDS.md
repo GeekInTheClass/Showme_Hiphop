@@ -23,6 +23,8 @@
   * 거북선 Remix (Feat. G2, B-Free, Okasian, ZICO)
   * 이 밤이 지나고 나면 (Feat.211)
 3. **G2**
+
+<img src="https://encrypted-tbn2.gstatic.com/images?q=tbn:ANd9GcSARuIJmYtKFTaufDjKzrK5aOtnMo_mRLTZz76vZM-ybnGwinz3"/>
   * 도깨비(쇼미5 결승곡)
   * 식구 (Feat. B-Free‚ Okasian‚ Reddy‚ Huckleberry P‚ Paloalto‚ Sway D & DJ Djanga)
   * 니가 알던 내가아냐(쇼미5)
